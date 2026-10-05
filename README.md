@@ -71,7 +71,9 @@ p.p.p.s. It’s currently May 29, 2026, and I wanted to add something. Previousl
 Another thing I always wanted to do is run for political office. I announced my desire to become President of the United States before I entered kindergarten, and I ran for the position of President of the United States while in a manic state twice on social media. I spent thousands of dollars on political ads on social media and I only got one political donor: my mother. Previously in this essay I wrote “When I was getting approved for disability benefits, the Social Security Administration (SSA) employee wrote down in the records that I have ‘marked’ issues interacting with others, that ‘marked limitations in social functioning are present’, that I have ‘social interaction limitations’. Laypeople who know me have described me as ‘like a cross between narcissism and autism’.” My social media was never popular and I do not have what it takes to win political office, any political office. When I was in a manic/delusional state I believed there was hope, but there is absolutely no hope. I wish to die via physician assisted suicide. 
 
 John Michael Reed 
+
 Date of this writing completed: June 27, 2026 
+
 Date of editing completed: Sept 9, 2026
 
 
